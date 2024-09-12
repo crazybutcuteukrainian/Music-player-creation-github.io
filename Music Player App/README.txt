@@ -1,4 +1,5 @@
+Musicians to put on the app:
 Kate Bush
-Boards of Canada
 Oingo Boingo
-Vocaloid
+Bunch of different Vocaloid producers
+Boards of Canada
